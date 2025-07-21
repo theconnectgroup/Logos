@@ -1,1 +1,1 @@
-All images are property of Connect Telephone & Computer Group and are copyrighted by law. None of them can be copied, used, or published for commercial purposes without Connect Telephone & Computer Group's clear permission to do so.
+All images are property of Connect Telephone & Computer Group and are copyrighted by law. None of them can be copied, used, or published for commercial, private, or educational purposes without Connect Telephone & Computer Group's clear permission to do so.
